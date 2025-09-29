@@ -39,4 +39,4 @@ A 6-month internship as a **Business Analyst** in the **luxury/fashion sector**,
 ---
 
 📫 **Let’s connect**  
-[LinkedIn](https://www.linkedin.com/in/ana%C3%AFs-ferreira-18b204297) | Email: anaisferreira43@gmail.com
+[LinkedIn](https://www.linkedin.com/in/anaisferreira/) | Email: anais.ferreira@edhec.com
